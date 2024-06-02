@@ -1,0 +1,2 @@
+# Awari-Negocia-o
+Praticas
